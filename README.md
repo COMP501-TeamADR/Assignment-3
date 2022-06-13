@@ -1,5 +1,5 @@
 # Assignment-3
 # Assignment-3
 CSS Coding for Assignment 3, making it look pretty.
-omg omg omg omg omg omg
-ok
+https://soundcloud.com/tafkaine/mean-ok?in=tafkaine/sets/a-doggs-influence
+my fans love my music and i love it too!
